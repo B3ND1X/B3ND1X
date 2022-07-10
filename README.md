@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @B3ND1X
 - 📫 liam@liambendix.com
 
-![air-scriptv1 0 2](https://raw.githubusercontent.com/B3ND1X/air-script-img/main/FE72CB6C-5682-4500-8D1D-24E792D94DE9.jpeg)
+![1C825BB8-A035-4E7E-BC32-FE2D1A6A690E](https://user-images.githubusercontent.com/48177481/178154925-7cdccd6b-d995-4c2b-94d8-c5ce41527ec0.jpeg)
